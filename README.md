@@ -2,7 +2,7 @@
 - 👀 I’m interested on BMW´s
 - 🌱 I’m currently learning lua,js,sql,css
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me discord.gg/k-rp / simonfischer184@icloud.com
+- 📫 How to reach me discord.gg/k-rp / smxsimon2025@gmail.com
 - 😄 Pronouns: -
 - ⚡ Fun fact: -
 
